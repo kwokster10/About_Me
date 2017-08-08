@@ -1,7 +1,5 @@
 # Welcome...View at your own risk!
 
-![Top of the Rock with Friends](https://scontent-lga.xx.fbcdn.net/hphotos-xfa1/v/t1.0-9/11076217_10102163346233670_8838781786921821906_n.jpg?oh=3bb0aade0282808bbb56d1a5af788654&oe=557BEB2D)
-
 ### I'm __Julie Kwok__. 
 #### Contact me at *kwokster10@hotmail.com*
 #### My digits: well you should have the guts to ask me for them. 
